@@ -1,5 +1,5 @@
 ## Hi there, I'm İrem👋
-💌 iremmahlatci@gmail.com
+💌 You can reach me iremmahlatci@gmail.com
 
 
 
