@@ -1,4 +1,4 @@
-## Hi there, I'm İrem👋
+## Hello World! I'm İrem👋🏻
 💌 You can reach me iremmahlatci@gmail.com
 
 
